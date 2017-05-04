@@ -7,4 +7,4 @@ Expect to grow up as soon as possibile.
 "Whet hurts more?
 The pain of hard work? 
 Or the pain of regret?"
-     ----BOSTON cELTICS
+     ----BOSTON CELTICS
